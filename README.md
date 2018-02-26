@@ -8,4 +8,4 @@ or maybe like this?
 
 or maybe like this?
 
-lovely monkey-monkeys!!!
+lovely monkeys!!!
