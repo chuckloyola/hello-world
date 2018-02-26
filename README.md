@@ -1,3 +1,3 @@
 # hello-world
 hello,
-i'm not doing this because i have to teach someone else how to do it
+i'm not really doing this because i have to teach someone else how to do it
